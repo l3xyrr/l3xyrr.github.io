@@ -1,4 +1,3 @@
-# l3xyrr.github.io
 What he doesn't know is,
 The ocean was still trying to be as beautiful as him,
 When it rained,
